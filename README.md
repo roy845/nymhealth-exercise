@@ -1,1 +1,0 @@
-## NymHealth Assignment
